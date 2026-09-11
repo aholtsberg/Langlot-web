@@ -1,1 +1,0 @@
-# LANGLOT RESEARCH web site
